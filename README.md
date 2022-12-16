@@ -1,2 +1,3 @@
 # RyZe_CT1
-Bot
+https://discord.gg/5cEsy2bZ
+
